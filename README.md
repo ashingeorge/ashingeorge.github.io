@@ -1,2 +1,2 @@
-# ashingeorge.github.io
+# Ashin George
 GitHub Page Repo
