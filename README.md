@@ -1,2 +1,0 @@
-# Ashin George
-GitHub Page
